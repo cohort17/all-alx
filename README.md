@@ -1,3 +1,3 @@
 # all-alx
 
-How it started.
+How it started the journey.

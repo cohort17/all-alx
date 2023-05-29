@@ -1,4 +1,4 @@
-#all-alx
+# all-alx
 here i am starting my join into the tech world.
 i am hoping to be sucessful and excel in this journey i ahve begun.
 may all i do be right and leads to some thing great on the way.
